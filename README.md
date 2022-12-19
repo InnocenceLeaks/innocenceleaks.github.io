@@ -5,6 +5,9 @@ We will deliver the truth information to everyone to save the falsely accused pe
 Twitter:@InnocenceLeaks <br>
 Email:innocence.leaks@gmail.com<br><br>
 
+# Four people, the president of the neighborhood association and those concerned, 
+who all opposed the construction work that involves people with power died in an incident.
+
 Author: Jack Law<br>
 Supervisor: Kazuyoshi Hirao<br><br>
 
