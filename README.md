@@ -1,6 +1,6 @@
 Hello World
 
-We will deliver the truth information to everyone to save the falsely accused person.
+We report the truth to save the falsely accused.  The truth, when revealed, can lead to justice being served
 
 Twitter:@InnocenceLeaks <br>
 Email:innocence.leaks@gmail.com<br><br>
@@ -83,6 +83,6 @@ Possibility of false charges<br>
  therefore the cause of death is unknown.<br><br>
 
 
-### We look forward to receiving your information.<br>
+### We look forward to receiving your information.
 Email: jack.law.hk@hotmail.com
 
